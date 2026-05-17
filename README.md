@@ -2,8 +2,8 @@
 - 👀 I’m interested in learning everything.
 - 🌱 I’m currently learning PYTHON.
 - 💞️ I’m looking to collaborate on anything interesting.
-- 📫 How to reach me, go on instagram @probrothers_yt
-- 😄 Pronouns: 😁
+- 📫 How to reach me, go on instagram @krish926a
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: am really addictive guy😉
 
 <!---
